@@ -1,1 +1,1 @@
-# Scientist Amr Torky — Field 2: Nuclear Energy Systems
+# Scientist Amr Torky — torky-field2-energy
